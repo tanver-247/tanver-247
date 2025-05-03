@@ -1,4 +1,4 @@
-# Tanver Hossain — Bangladeshi Graphic Designer
+# Tanver Hossain — Graphic Designer
 
 ![Banner](https://tanverhossain.rf.gd/wp-content/uploads/2024/05/rth-website-circle.png)
 
